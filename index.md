@@ -147,6 +147,6 @@ So that’s the goal.
 #### Art. 2.1 Psychological abuse
 “Any unwelcome act including confinement, isolation, verbal assault, humiliation, intimidation, infantilisation, or any other treatment which may diminish the sense of identity, dignity, and self-worth.”
 
-And yet I can’t imagine there are any women in the pro field who don’t feel humiliated by the way that they have been treated over the years. Right now they’re isolated from what’s really going on in the UCI with regard to lockdown information.
+And yet I can’t imagine there are any women in the pro field who don’t feel humiliated by the way that they have been treated over the years. 
 
 It’s time for change in the UCI. It’s an ethical train wreck that needs replacing.
