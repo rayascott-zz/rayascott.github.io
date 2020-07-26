@@ -2,7 +2,7 @@
 
 Ever read the UCI Code of Ethics? I wonder how many in pro cycling have, especially the women, after what I discovered. I found the document after Googling “UCI fairness in sport”.
 
-https://www.uci.org/docs/default-source/rules-and-regulations/uci-code-of-ethics.pdf
+[UCI Code of Ethics](https://www.uci.org/docs/default-source/rules-and-regulations/uci-code-of-ethics.pdf)
 
 TLDR; 
 
