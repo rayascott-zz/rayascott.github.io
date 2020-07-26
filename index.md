@@ -12,7 +12,7 @@ Strangely it’s the Ethics Committee that has to report on its activities to th
 
 Art. 6.1. on non-discrimination doesn’t even include discrimination on the grounds of gender. Yes, it’s that shocking. You’d think it would be explicitly stated but it’s relegated to the “not limited to” clause of the article, which really could included or exclude anything. 
 
-Below are sections of the Code of Ethics that I wanted to bring attention to. Why? Well yet again the woman’s pro field are being discriminated against, this time in the aftermath of the lockdown. See [cyclingnews.com](https://www.cyclingnews.com/news/marianne-vos-leads-the-cyclists-alliance-open-letter-to-the-uci/) for more on that. 
+Below are sections of the Code of Ethics that I wanted to bring attention to. Why? Well the woman’s pro field were left feeling isolated and ignored during the pandemic while the UCI decided to spend more to time worrying about the men than anything else. See [cyclingnews.com](https://www.cyclingnews.com/news/marianne-vos-leads-the-cyclists-alliance-open-letter-to-the-uci/) for more on that. 
 
 I’ve added my comments below amongst the quoted text from the Code.
 
