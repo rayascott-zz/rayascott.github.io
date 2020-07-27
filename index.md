@@ -1,4 +1,5 @@
 # The UCI's Unethical Ethics Commission
+*Ray A. Scott - 26 July 2020*
 
 Ever read the UCI Code of Ethics? I wonder how many in pro cycling have, especially the women, after what I discovered. I found the document after Googling “UCI fairness in sport”.
 
