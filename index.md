@@ -8,7 +8,7 @@ TLDR;
 
 The UCI Ethics Commission is intended to be independent and ethical, but it’s not. It’s rules are decided by the UCI and and even the members, including replacements, are proposed by the UCI Management Committee. 
 
-Strangely it’s the Ethics Committee that has to report on its activities to the UCI. I would have thought that it would be the other way around. That the Management Committee report on its activities to the Ethics Committee. Independence is an illusion.
+Strangely it’s the Ethics Commission that has to report on its activities to the UCI. I would have thought that it would be the other way around. That the Management Committee report on its activities to the Ethics Commission. Independence is an illusion.
 
 Art. 6.1. on non-discrimination doesn’t even include discrimination on the grounds of gender. Yes, it’s that shocking. You’d think it would be explicitly stated but it’s relegated to the “not limited to” clause of the article, which really could included or exclude anything. 
 
